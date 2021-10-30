@@ -2,7 +2,7 @@
 
     This is a great clip! - https://clips.twitch.tv/BoredDeafScallionVoHiYo-CoIeAkmwjMGGOHJ0
     
-    
+    What a week......
 
 - 👀 I’m interested in ... Millions of dollars.
 
