@@ -1,8 +1,19 @@
 - 👋 Hi, I’m @PhiliXiR. Here is my stream - https://www.twitch.tv/philixir
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+
+    This is a great clip! - https://clips.twitch.tv/BoredDeafScallionVoHiYo-CoIeAkmwjMGGOHJ0
+    
+    
+
+- 👀 I’m interested in ... Millions of dollars.
+
+
+- 🌱 I’m currently learning ... Everything That I can.
+
+
+- 💞️ I’m looking to collaborate on ... Mostly anything, what you working on??
+
+
+- 📫 How to reach me ... https://www.twitch.tv/philixir type !discord in there for an up to date link.
 
 <!---
 PhiliXiR/PhiliXiR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
